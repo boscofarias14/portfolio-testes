@@ -1,2 +1,0 @@
-s´coksaipcjsapcs
-scaisncsouacascn
